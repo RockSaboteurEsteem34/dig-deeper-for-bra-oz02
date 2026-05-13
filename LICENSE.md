@@ -1,4 +1,4 @@
-#  
+#  dig deeper for brainrots Script elite is the best dig deeper for brainrots Script, featuring infinite resources and private server access. Safe and
 
 
 
